@@ -24,7 +24,7 @@
 - Sometimes making friends can be awkward for me, as I can rarely keep up a good convo.
 
 # **PONYTOWN ;;**
-- If my name has C+H in it, feel free to cuddle! But if it doesn't, please ask me instead unless my name says otherwise.
+- If my name has C+H in it, feel free to cuddle! But if it doesn't, please ask me instead unless my name says otherwise. (Or unless you're a friend)
 - I don't roleplay on Ponytown, really. Pleasse don't try to force me into a roleplay, I will ignore you.
 - Do not copy or take inspiration off my ponies without asking!
 - I don't like being cuddled with so many people, especially if I'm not close with you.
