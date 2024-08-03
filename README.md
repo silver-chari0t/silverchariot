@@ -35,14 +35,14 @@
 
 🌙 = *My usual status. I'm usually up for talking to people at this point, but I could be offtab.*
 
-🟢/💬 = Come up to me and we can chat!
+🟢/💬 = I rarely use these two statuses, but if I do, you can come up to me and we can chat!
 
 ![c5d](https://github.com/user-attachments/assets/79e4db9b-411c-4faf-8fcf-44f08e2ac9ef)
 
 
 # **DNI ;;**
 - People below 14
-- Problematic fandoms
+- Problematic fandoms (Hazbin Hotel etcetera .)
 - Most Jotakak shippers
 - Stroheim/Alessi enjoyers
 - Maid-dressed characters that are minors.
@@ -56,8 +56,11 @@
 # **MY INTERESTS;;**
 - Anime ;; **Mostly JJBA**
 - MLP
+- **Gravity Falls**
 - Doctor Who
 - Good Omens
 - Roblox
 - Pierce The Veil, MCR, Wave To Earth ETC.
-- Pizza Tower // Cult of the Lamb 
+- Pizza Tower // Cult of the Lamb
+
+ **Interests in bold mean that I'm currently on a fixation for those interests.**
